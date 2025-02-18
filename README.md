@@ -1,1 +1,10 @@
 # slicemaster
+Slice Master is a nice change of pace in the busy world of mobile games, where fast-paced action and complicated stories are common. If you know the developer's name, type it here. If not, leave this field blank. This game, which looks very simple, takes you into a world of precise cuts and a strangely zen-like experience.  It's simple to learn but hard to get good at, and it's the right mix of casual fun and skill-based challenges.  On both iOS and Android, Slice Master is available as a free-to-play game with optional in-app purchases. This means that a lot of people can play it.
+
+How to Make a Good Slice
+
+[Slice Master](https://slice-master.io) is a game about being precise and on time at its core. A lot of different things are flying across the screen at players, like juicy fruits, crisp greens, delicate pastries, and even the odd surprise.  What's your job? To flick your finger to cut these things into pieces, trying to get perfect cuts and get the highest score possible.  The controls are easy to use and respond quickly, so you can make exact swipes and satisfyingly clean cuts.  Tricks are important, but hacking and cutting alone are not enough.  To be successful, you need to know when to slice, how to angle your blade, and which items to cut first.
+
+A Painting of Challenges in Food
+
+Slice Master isn't just about slicing; it's also about beating different kinds of tasks.  Players can get used to the controls and the different kinds of items in the early levels, which teach them how the game works.  But as you go through the game, it gets harder.  In some levels, your goal will be to cut a certain amount of pieces, hit certain areas, or make complicated patterns.  In some levels, there are objects that move, so you have to plan ahead and time your slices just right.  Then there are the bombs, which are put carefully among the things that can be cut. These explosive dangers require quick reactions and a good eye.  If you make one mistake, it's game over.
